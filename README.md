@@ -24,4 +24,4 @@ We need move and make the voice for all persons as they would suffer this soon o
 
 
 ## Contact
-You can reach us by [E-mail](fuimov35@gmail.com) if you need or want to broadcast your voices here, anonymous guaranteed.
+You can reach us by [E-mail](mailto:fuimov35@gmail.com) if you need or want to broadcast your voices here, anonymous guaranteed.
